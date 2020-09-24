@@ -1,1 +1,1 @@
-# Organizzazioni-e-societ-digitali
+# Organizzazioni-e-società-digitali
